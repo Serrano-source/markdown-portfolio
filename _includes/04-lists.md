@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Series
+Doctor Who
+Supernatural
+Grimm
+Sons Of Anarchy
